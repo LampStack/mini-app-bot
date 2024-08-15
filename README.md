@@ -36,9 +36,9 @@ Contact us to find out more about our pricing options and to discuss a custom pa
 
 Contact us, and we'll answer all your questions and explain your potential game in detail:
 
-- <a href="https://t.me/+E99QTmBlz1syMDM0" target="_blank">Telegram Channel</a>
-- [Our Email](mailto:gm@communityjuice.xyz)
-- <a href="https://communityjuice.xyz" target="_blank">Website</a>
+- <a href="https://t.me/osClub" target="_blank">Telegram Channel</a>
+- [Our Email](mailto:xialop@outlook.com)
+- <a href="https://t.me/LampStack" target="_blank">Telegram Username</a>
 
 
 ## Frequently asked questions
